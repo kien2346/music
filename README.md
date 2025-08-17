@@ -6,11 +6,11 @@
 - Despacito Chế Phiên Bản Thi Đại Học - Mini Anti.mp3*
 - HAY TRAO ANH LUONG THIEN MiNi Anti - MiN.mp3*
 - Học Phận ( Bạc Phận Parody ) - MiNi Anti.mp3*
-- Tet Nha Ba Hoan Parody_ - Vanh Leg_ Pham.mp3*
+- Tết Nhà Bà Hoan (Parody) - Vanh Leg.mp3
 ### AMV
 - \[AMV\] Lời Anh Chưa Thể Nói - Mon Lì.mp3*
 - \[AMV\] Một Nhà.mp3*
-- \[AMV\] Way Back Home  Phiên Bản Lời Việt.mp3*
+- \[AMV\] Way Back Home Phiên Bản Lời Việt.mp3
 - \[Mashup\] \[AMV\] Mãi Bên Anh Nhé.mp3*
 ### NVN
 - Chay - Wowy, Karik.mp3*
