@@ -7,6 +7,8 @@
 - HAY TRAO ANH LUONG THIEN MiNi Anti - MiN.mp3*
 - Học Phận ( Bạc Phận Parody ) - MiNi Anti.mp3*
 - Tết Nhà Bà Hoan (Parody) - Vanh Leg.mp3
+- Giấc Mộng Ca Sĩ (Parody) - Vanh Leg.mp3
+- Động Thăng Thiên (Quỳnh Búp Bê Parody) - Vanh Leg.mp3
 ### AMV
 - \[AMV\] Lời Anh Chưa Thể Nói - Mon Lì.mp3*
 - \[AMV\] Một Nhà.mp3*
